@@ -1,2 +1,2 @@
 # sub
-https://now.gg/games/roblox-mini-games.html
+https://web.cloudmoonapp.com/game/com.roblox.client/
